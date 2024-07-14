@@ -1,2 +1,2 @@
-# Persian Immortal Studios
-### Unleash Your Coding Immortality: Join the Global Hub of Software Innovation and Learning at Persian Immortal Studios
+# AlgoDucks Studios
+### Unleash the power of algorithmic thinking: Join the Global Hub of Software Innovation and Learning at AlgoDucks Studios
